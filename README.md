@@ -1,1 +1,1 @@
-# -1WINBET
+1winbet
